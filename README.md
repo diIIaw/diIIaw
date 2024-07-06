@@ -22,3 +22,4 @@ check crgn 4 more
 
 <p align="center"> <img width="410" src="https://file.garden/ZeQWIBqOoVX2psSC/download%20(5).jpg" alt="burps">
 
+![](https://komarev.com/ghpvc/?username=weredogs&color=000000)
