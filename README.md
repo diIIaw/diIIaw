@@ -1,25 +1,5 @@
 
-<p align="center"> <img width="400" src="https://file.garden/ZeQWIBqOoVX2psSC/%E2%9C%B2.jpg" alt="burps">
+<p align="center"> <img width="700" src="https://file.garden/ZeQWMhqOoVX2psSD/Screenshot%20(1209).png" alt="burps">
+<p align="center"> <img width="200" <img src="https://komarev.com/ghpvc/?username=diIIaw&color=ece2af&style=for-the-badge&label=SAVE+POINTS">
+<p align="center"> was once known as github weredogs... goodbye github weredogs... we shall miss you..
 
-# <p align="center"> [  MIZU　❖　ZEN  ]
-
-<p align="center"> <img width="400" src="https://file.garden/ZeQWIBqOoVX2psSC/download__4_-removebg-preview.png" alt="burps">
-
-<h1 align="center"></[](h)>
- always afk/offtab so w2i
-<p align="center">
-
-super slow bare w me
-<p align="center">
-
-check crgn 4 more
-<p align="center">
-
-
-</h1>
-
-<p align="center"> leave any msg on my retrospring!
-
-<p align="center"> <img width="410" src="https://file.garden/ZeQWIBqOoVX2psSC/download%20(5).jpg" alt="burps">
-
-![](https://komarev.com/ghpvc/?username=weredogs&color=000000)
